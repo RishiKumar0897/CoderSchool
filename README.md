@@ -1,1 +1,1 @@
-# projects created during time employed at the Coder School of  
+# projects created during time employed at the Coder School   
