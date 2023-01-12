@@ -1,1 +1,1 @@
-# projects created during time employed at the Coder School of Johns C
+# projects created during time employed at the Coder School of Johns Cr
